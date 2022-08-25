@@ -1,0 +1,5 @@
+- 👋 Salut, je suis chelba.
+- 👀 Je dev un serveur minecraft roleplay
+- 🌱 
+- 💞️ 
+- 📫 
